@@ -1,0 +1,2 @@
+# seppo_corporate_one_page
+seppo_corporate_one_page
